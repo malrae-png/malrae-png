@@ -4,7 +4,7 @@
 
 `programming` · `business intelligence` · `web` · `open source`
 
-Hi i'm Reem but you can call me Rae. I like programming and I like art and I'd love to show that in my future work!
+
 
 
 
